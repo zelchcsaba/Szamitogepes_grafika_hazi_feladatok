@@ -1,0 +1,1 @@
+# Szamitogepes_grafika_hazi_feladatok
